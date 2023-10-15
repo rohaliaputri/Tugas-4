@@ -1,1 +1,3 @@
-![gabin-tape-20220311-081339](https://github.com/rohaliaputri/Tugas-4/assets/144677172/3c0b5d0e-1960-468c-9062-6b8141d15325)
+![WhatsApp Image 2023-10-15 at 08 15 16](https://github.com/rohaliaputri/Tugas-4/assets/144677172/38ef0a7c-13cc-4dc8-883b-255e33f2ed34)
+![WhatsApp Image 2023-10-15 at 08 15 17](https://github.com/rohaliaputri/Tugas-4/assets/144677172/6a0c5ab9-01fc-4bb1-ba10-6865c776aedd)
+
